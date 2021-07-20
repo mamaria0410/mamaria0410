@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mamaria0410
+- 👋 Hi, I’m fine
 - 👀 I’m interested in art
 - 🌱 I’m currently learning nothing kk
 - 💞️ I’m looking to collaborate on ...
